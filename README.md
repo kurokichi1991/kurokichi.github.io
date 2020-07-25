@@ -1,0 +1,1 @@
+# kurokichi.github.io
